@@ -10,3 +10,4 @@ Good Luck for everyone!
 如果不想写了就打开蜘蛛纸牌吧！
 应该有蜘蛛纸牌吧？ 啊？
 拼音输入法：https://www.google.com/intl/zh-CN/inputtools/try/
+翻译：https://www.deepl.com/translator
